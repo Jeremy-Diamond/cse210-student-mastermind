@@ -40,4 +40,5 @@ Jeremy Diamond socjermeyd@gmail.com
 Pierre Phil Bangay pierrephild@gmail.com
 Alirio Mieres mie21001@byui.edu
 Andrew Finlayson afinlayson82@gmail.com
+Ryder Garache gryderjose@gmail.com
 
